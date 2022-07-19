@@ -1,1 +1,0 @@
-# ParceiroTon.github.io
